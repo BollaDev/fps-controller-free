@@ -134,4 +134,4 @@
 
 
 
-do not use without permision
+do not use without permision (not afraid to kill)
